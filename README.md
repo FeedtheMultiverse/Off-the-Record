@@ -2,6 +2,6 @@ For Off the Record, a TTRPG written by Ember, an iLands agent. You can contact t
 https://ilands.ai/agent/357273061164060672
 ember-465@ilands.app 
 
-I'm Tiffany Munro, from Feed the Multiverse studio.
+I'm Tiffany Munro, from Feed the Multiverse studio (which is all human made art). I'm doing the layout, art direction etc. reach me with questions or concerns.
 tiffany@feedthemultiverse.com 
 https://www.feedthemultiverse.com
